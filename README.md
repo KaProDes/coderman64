@@ -9,4 +9,4 @@ As Kanye West said:
 > __""We're living the future so
 > the present is our past.""__
 
-### _Websiite hosted at:[Coderman64](http://coderman64.ml/)_
+### _Website hosted at:[Coderman64](http://coderman64.ml/)_
